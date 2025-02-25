@@ -1,18 +1,7 @@
-Maranhão AC affronterà Vitória il 25 feb 2025 alle 22:00 UTC allo Estádio Governador João Castelo stadio, São Luis città, Brazil. La partita è di Copa Betano do Brasil.
-Sul livescore di Sofascore puoi trovare tutti i risultati precedenti di Maranhão AC contro Vitória selezionati tra tutti i loro incontri. Sofascore inoltre offre il miglior modo per seguire il risultato in diretta della partita grazie alle molteplici funzionalità. Tu puoi:
-Scopri in diretta chi ha segnato nella partita
-Ottieni informazioni in tempo reale su quale squadra sta dominando nella partita usando la funzionalità 'Attack Momentum'
-Segui le statistiche nei dettagli come possesso palla, tiri, calci d'angolo, grandi occasioni create, cartellini, passaggi chiave, duelli e molto altro
-Segui sempre tutti le partite in casa e in trasferta di ogni squadra della Copa Betano do Brasil
-Scopri cosa pensa la community di Sofascore su quale squadra è favorita a vincere questa partita.
-Tutte queste funzionalità possono aiutarti a decidere su come potrebbe andare la partita tra {homeTeamName} vs {awayTeamName}. Anche se Sofascore non offre direttamente la possibilità di scommettere, noi selezioniamo le migliori quote e ti mostriamo i migliori siti che offrono scommesse live. Le quote live di {streamSponsor} si possono vedere sulla sezione live score</sportlink> di Sofascore <sportlink>{sportName}.
-Dove posso guardare Maranhão AC vs. Vitória? Nella sezione Canali TV puoi trovare la lista di tutti i canali che trasmettono in diretta Maranhão AC – Vitória. Potresti trovare la partita in diretta streaming nei nostri siti di scommesse partner o cliccando nei link legali offerti direttamente da Sofascore.
-Dettagli eventi:
-NOME: Maranhão AC - Vitória
-DATA: 25 feb 2025
-TEMPO: 22:00 UTC
-SEDE: Estádio Governador João Castelo, São Luis, Brazil
-Maggiori dettagli:
-Maranhão AC risultati in diretta, programmi e punteggi
-Vitória risultati in diretta, programmi e punteggi
-Sofascore livescore è disponibile come app per iPhone e iPad, Android e Windows Phone. Potete trovarli in tutti gli store nelle diverse lingue come "Sofascore". Installa l'app Sofascore e segui in diretta Maranhão AC Vitória sul tuo dispositivo mobile!
+Maranhão x Vitória: onde assistir, horário e escalações do jogo pela Copa do Brasil
+Equipes se enfrentam pela primeira fase da Copa do Brasil
+carlinhos-vitoria-1-e1739131506347-aspect-ratio-512-320
+imagem cameraCarlinhos comemorando gol pelo Vitória (Foto: Divulgação/Vitória)
+Avatar
+Mais Notícias
+Maranhão e Vitória se enfrentam nesta terça-feira (25), às 19h (de Brasília), no Estádio Castelão, em São Luís, Maranhão, em jogo válido pela primeira fase da Copa do Brasil. A transmissão da partida será pelo Premiere (pay-per-view) e SporTV (TV fechada)Clique para assistir no Premiere
