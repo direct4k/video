@@ -1,3 +1,10 @@
+📺📱👉◄◄🔴 https://tinyurl.com/2fcbrypp
+
+📺📱👉◄◄🔴 https://tinyurl.com/2fcbrypp
+
+📺📱👉◄◄🔴 https://tinyurl.com/2fcbrypp
+
+
 Kylian Mbappé absent du groupe du Real Madrid pour le déplacement à la Real Sociedad en Coupe du Roi
 Kylian Mbappé ne figure pas dans le groupe du Real Madrid qui se déplace ce mercredi 26 février (21 h 30) sur la pelouse de la Real Sociedad dans le cadre de la demi-finale aller de Coupe du Roi. L’international français avait été laissé au repos la veille, en raison d’une opération à une dent de sagesse survenue lundi 24 février.
 
